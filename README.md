@@ -1,1 +1,1 @@
-# Dokumentacja-zada-praktycznych
+# Dokumentacja-zadań-praktycznych
