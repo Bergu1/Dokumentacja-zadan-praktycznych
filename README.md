@@ -1,1 +1,1 @@
-# Dokumentacja-zada-praktycznych-z-laboratorium
+# Dokumentacja-zada-praktycznych
